@@ -1,4 +1,4 @@
-★ - Hewwo *!* :3c The name'z Slingshot *!* But yah can also call me File *!* 
+★ - Hewwo *!* :3c The name'z Slingshot *!* But yah can also call me File *!* :D
 
 ᗢ - My main interests are: Phighting *!* Flicker *!* Horror/Roblox games in general *!* :]
 
