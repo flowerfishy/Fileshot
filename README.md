@@ -1,10 +1,9 @@
-- 👋 Hi, I’m @Fileshot
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+★ - Hewwo *!* :3c The name'z Slingshot *!* But yah can also call me File *!* 
 
-<!---
-Fileshot/Fileshot is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+ᗢ - My main interests are: Phighting *!* Flicker *!* Horror/Roblox games in general *!* :]
+
+★ - I always stay close to the bakery *!*  Sometimes at the boats and the library *!* :P
+
+ᗢ - If yah want to interact just whisp me *!* But see my status first *!* :)
+
+★ - don't assume i'm a girl/boy just because of my cosplays/ocs, and also please don't copy/steal my skins (uf) ! ^_^
